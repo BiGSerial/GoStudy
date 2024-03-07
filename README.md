@@ -1,0 +1,2 @@
+# GoStudy
+Just Things Aleatorys 
